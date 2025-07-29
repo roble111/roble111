@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://flowcv.com/resume/d8a15w59w71d](https://flowcv.com/resume/d8a15w59w71d)
 
-- ⚡ Fun fact **cinematographer/videographer**
+- ⚡ Fun fact **cinematographer/videographer/editor**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
